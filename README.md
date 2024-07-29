@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @galizedeluta
 - 👀 I’m interested in ... briga de galo
 - 🌱 I’m currently learning kid bengasla
-- 💞️ I’m looking to collaborate on
+- 💞️ I’m looking to collaborate on diamante gratisno free fire
 - 📫 How to reach me ... minecraft
 - 😄 Pronouns: boy ceta
 - ⚡ Fun fact: nego ney
